@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi guy, I'm RDuy
 
 <!--
 **X2002D/X2002D** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
